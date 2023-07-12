@@ -1,5 +1,15 @@
-### Hi👋 , I'm Prathamesh Patil
+### Hi👋 , I'm Prathamesh Patil 🙋🏻‍♂
+And I write CODE!!
 
+
+I am,
+👩‍🎓 An Engineer by Choice.
+
+I enjoy the company of intellectual and enthusiastic people because it drives me to work harder and become a better person. If you think you are one such person, feel free to CONNECT!
+
+ I am inclined to use my knowledge to develop projects that intend to turn our thinking into reality!...
+
+Although we often attribute success to such educational accomplishments, I believe that to retain the success it is crucial to work for a good cause!...
 <!--
 **Prathamesh18X/Prathamesh18X** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
