@@ -2,8 +2,7 @@
 And I write CODE!!
 
 
-I am,
-👩‍🎓 An Engineer by Choice.
+I am,👨🏽‍💻 An Engineer by Choice.
 
 I enjoy the company of intellectual and enthusiastic people because it drives me to work harder and become a better person. If you think you are one such person, feel free to CONNECT!
 
